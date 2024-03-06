@@ -1,0 +1,2 @@
+- 💞️ I’m looking to collaborate with developers interested in PropTech
+- 📫 How to reach me kristen@runproperty.com
